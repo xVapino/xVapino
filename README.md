@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @xVapino
+- 👀 I’m interested in AI/ML
